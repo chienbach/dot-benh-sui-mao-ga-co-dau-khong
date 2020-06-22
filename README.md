@@ -1,6 +1,6 @@
 <h2>Đốt bệnh sùi mào gà có đau không</h2>
 
-<p><a href="http://phongkhamthaiha.com/dot-sui-mao-ga-o-dau-bao-nhieu-tien-co-dau-khong-bao-lau-thi-khoi-102257.html">Đốt sùi mào gà</a> là giải pháp chữa bệnh mồng gà bằng can thiệp ngoại khoa. Vì vậy, Mặc dù bạn có áp dụng chữa bệnh mồng gà bằng bất cứ phương pháp nào (đốt điện, laser thường hay áp lỏng) đều khá nhiều gây nên tổn hại trên bề mặt da và đều gây ra đau đớn.</p>
+<p><Đốt sùi mào gà là giải pháp chữa bệnh mồng gà bằng can thiệp ngoại khoa. Vì vậy, Mặc dù bạn có áp dụng chữa bệnh mồng gà bằng bất cứ phương pháp nào (đốt điện, laser thường hay áp lỏng) đều khá nhiều gây nên tổn hại trên bề mặt da và đều gây ra đau đớn.</p>
 
 <p><img alt="" src="http://phongkhamthaiha.com/media/images/dot-sui-mao-ga.jpg" style="height:250px; width:400px" /></p>
 
@@ -8,7 +8,7 @@
 
 <p>Bên cạnh đó, người bệnh cũng cần thiết phải hiểu rằng đốt bệnh mồng gà có đau không còn căn cứ theo vào vị trí đốt và tình trạng tổn thương ít hay nhiều sau khi đốt. Với các y bác sĩ chuyên môn cao và lành nghề thì có khả năng suy nhược mức độ tổn hại khi đốt sùi mào gà đến mức tối đa Vì vậy, việc chọn lựa các bệnh viện chuyên khoa uy tín, tin cậy cũng có vai trò quan trọng trong vấn đề này.</p>
 
-<p>xem thêm: <strong><a href="http://phongkhamthaiha.com/benh-sui-mao-ga-o-nam-gioi-va-cach-chua-dieu-tri-102247.html">bệnh sùi mào gà ở nam giới</a></strong></p>
+<p>xem thêm: <strong>bệnh sùi mào gà ở nam giới</strong></p>
 
 <h2>Đốt bệnh sùi mào gà có để lại seo không</h2>
 
